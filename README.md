@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-🔥🗡️🛡️ Welcome, travelers, please take a rest at my GitHub! 🏕️
+🔥🗡️🛡️ Welcome, travelers, please take a rest at my GitHub! 🍖🥘🏕️
 
 I'm Gia Bao (Stephen) Tran, a Business and Commerce student at Carleton University in Ottawa, Canada. While my academic focus is on finance and commerce, I have a strong passion for coding and love to spend my free time learning technologies and developing software projects.
 
